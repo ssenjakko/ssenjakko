@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...IT
 - 🌱 I’m currently learning ...IT
 - 💞️ I’m looking to collaborate on ...IT
-- 📫 How to reach me ...0756224210
+- 📫 How to reach me ...+256756224210
 
 <!---
 ssenjakko/ssenjakko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
